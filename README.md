@@ -1,4 +1,5 @@
 # HolaMundo
 El tutorial de GitHub
 
-Estamos a sexta hora del jueves, a las dos y veinte ar carrer
+la verdad es que hay hambre y no se que escribir
+mi pecho una averia sangre negra en tuberias ~ Miranda
